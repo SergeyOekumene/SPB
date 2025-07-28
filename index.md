@@ -7,19 +7,19 @@ title: Рекомендации для Луизы
 ## Апарты загородом 
 В этих двух я был, мне понравилось и туда можно доехать из города на такси. Лучше ехать на буднях, на выходных все обычно занято. И, конечно, бронировать заранее.
 В целом вокруг питера много таких вариантов, если эти по каким-то причинам не подходят напиши, найдем что-то еще.
-https://forestlake.ru/#about
-https://deeplakehouse.ru/
-https://borclub.ru/ - немного другой формат, там спа, отель и ресторан
+- https://forestlake.ru/#about
+- https://deeplakehouse.ru/
+- https://borclub.ru/ - немного другой формат, там спа, отель и ресторан
 
 В рамках загородной программы еще предлагаю заехать в Линдулувскую рощу и/или погулять по берегу залива и там же можно пообедать(это в том же направлении что и эти апарты):
 
-- Листвиничная роща времен Петра I 
-https://ru.wikipedia.org/wiki/%D0%9B%D0%B8%D0%BD%D0%B4%D1%83%D0%BB%D0%BE%D0%B2%D1%81%D0%BA%D0%B0%D1%8F_%D1%80%D0%BE%D1%89%D0%B0
-https://yandex.com/maps/-/CHXEeInB
+### Листвиничная роща времен Петра I 
+- https://ru.wikipedia.org/wiki/%D0%9B%D0%B8%D0%BD%D0%B4%D1%83%D0%BB%D0%BE%D0%B2%D1%81%D0%BA%D0%B0%D1%8F_%D1%80%D0%BE%D1%89%D0%B0
+- https://yandex.com/maps/-/CHXEeInB
 
-- Рестораны на берегу
-https://yandex.com/maps/-/CHXEeH2e
-https://yandex.com/maps/-/CHXEiE8~
-https://yandex.com/maps/-/CHXEmWZR
-https://yandex.com/maps/-/CHXEuBow
+### Рестораны на берегу
+- https://yandex.com/maps/-/CHXEeH2e
+- https://yandex.com/maps/-/CHXEiE8~
+- https://yandex.com/maps/-/CHXEmWZR
+- https://yandex.com/maps/-/CHXEuBow
 
