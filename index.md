@@ -49,8 +49,41 @@ title: Рекомендации для Луизы
 - [Карта](https://yandex.com/maps/-/CHXa6M8J)
 
 ### Петроградская сторона и петропавловская крепость
+- [Карта](https://yandex.com/maps/-/CHd4i05R)
+- [Wiki](https://ru.wikipedia.org/wiki/%D0%9F%D0%B5%D1%82%D1%80%D0%BE%D0%BF%D0%B0%D0%B2%D0%BB%D0%BE%D0%B2%D1%81%D0%BA%D0%B0%D1%8F_%D0%BA%D1%80%D0%B5%D0%BF%D0%BE%D1%81%D1%82%D1%8C)
 
 ### Петергоф
+- [Карта](https://yandex.com/maps/-/CHd4iPZ8)
+
+## Рестораны
+
+- [Tartarbar](https://yandex.com/maps/-/CHd4eAIr)
+- [Trappist](https://yandex.com/maps/-/CHd4eIjt)
+- [ДЕД ХО](https://yandex.com/maps/-/CHd4eM8d)
+- [Гребешки](https://yandex.com/maps/-/CHd4eUit)
+- [Пузата хата](https://yandex.com/maps/-/CHd4eYzk) - Классный ресторан украинской кухни, особенно рекомендую
+- [Stroganoff Steak House](https://yandex.com/maps/-/CHd4eBLR)
+- [Русская рюмочная № 1](https://yandex.com/maps/-/CHd4eF7F) - Русская кухня
+- [Кореана](https://yandex.com/maps/-/CHd4eCzr) - Мой любимый корейский
+- [Petrov-Vodkin](https://yandex.com/maps/-/CHd4eOzM)
+- [Карл и Фридрих](https://yandex.com/maps/-/CHd4e0lj)
+- [Альпенхаус](https://yandex.com/maps/-/CHd4e8~S)
+- [Frank](https://yandex.com/maps/-/CHd4eHKe) - Крутые ребра на гриле
+
+## Бары
+
+- [Небо и вино](https://yandex.com/maps/-/CHd4eN1R)
+- [Бражник](https://yandex.com/maps/-/CHd4e2Kw)
+- [У Ларисы](https://yandex.com/maps/-/CHd4iA3P)
+- [Bolshoy bar](https://yandex.com/maps/-/CHd4iMKR)
+- [Bar 76](https://yandex.com/maps/-/CHd4iQ~S)
+- [1/2 Of You](https://yandex.com/maps/-/CHd4i47k)
+- [Лаборатория 31](https://yandex.com/maps/-/CHd4iF87)
+- [Твоя остановочка](https://yandex.com/maps/-/CHd4i6ma)
+- [The Hat](https://yandex.com/maps/-/CHd4i62F)
+- [Orthodox](https://yandex.com/maps/-/CHd4iCp~)
+- [Полторы комнаты](https://yandex.com/maps/-/CHd4iKoo)
+
 
 
 
